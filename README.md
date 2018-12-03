@@ -7,3 +7,7 @@ Esto es una tonteria
 Animaros, entrar a [disfrutar](http://pornhub.com) un ratito.
 
 ![Menuda foto](https://joedicastro.com/static/pictures/avatar.png)
+
+Esto es una lista:
+* Item 
+* Item 2
